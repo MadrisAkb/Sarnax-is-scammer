@@ -5,3 +5,6 @@ So who want a proofs is a scammer search on Google  Sarnax#7522 scammer and you 
 Also Sarnax Nice 13k fake members 
 Guys is have 13k fake members , is have only 30 réal members 
 So dont try to scam people who want to make money in cheats , try to fine another job kidd
+
+Also dont try to close this acount github becose i will create new acount and i will post again you are a scammer
+Becose alote of people DM me in my old acount on discord saying Sarnax#7522 SCAM me so i will stop your fucking scamms now bitch
